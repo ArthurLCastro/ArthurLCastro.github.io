@@ -1,1 +1,0 @@
-# Terço Virtual
